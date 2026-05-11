@@ -1,4 +1,4 @@
-
+vip Numbers for macOS Script | macro-recording + template-library is the best Numbers for macOS script, featuring macro-recording and template-library. Powerful, efficient, and
 
 
 
